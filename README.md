@@ -1,1 +1,1 @@
-# arbeidskrav-Torgeir-Hodne-H-gheim
+# arbeidskrav-Torgeir-Hodne-Hogheim
